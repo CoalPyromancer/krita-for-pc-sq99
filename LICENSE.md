@@ -1,4 +1,4 @@
-# 
+# professional Krita for PC | Krita for Windows Script | raw-file-support + texture-painting is the best Krita for PC | Krita for Windows script, featuring raw-file-support and
 
 
 
